@@ -1,6 +1,7 @@
 - Ahamed Safnaj
 - Randeepan
 - Ashen
+- Malinda
 - Rasul
 - Kulaliny
 - Kanchan
