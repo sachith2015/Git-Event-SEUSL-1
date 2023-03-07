@@ -4,4 +4,6 @@
 - Abas Suja
 - Rasul
 - Kulaliny
-
+- Malinda
+- Rasul
+- Kulaliny
