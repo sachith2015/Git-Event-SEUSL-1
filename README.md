@@ -1,6 +1,9 @@
 - Ahamed Safnaj
 - Randeepan
 - Ashen
+- Abas Suja
+- Rasul
+- Kulaliny
 - Malinda
 - Rasul
 - Kulaliny
