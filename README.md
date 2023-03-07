@@ -1,5 +1,5 @@
 - Ahamed Safnaj
 - Randeepan
 - Ashen
-- Rasul
 - Kulaliny
+-Sendurpriyan
