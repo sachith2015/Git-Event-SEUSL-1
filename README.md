@@ -1,4 +1,11 @@
-- Safnaj
+- Ahamed Safnaj
 - Randeepan
 - Ashen
 - Dhanushka
+- Chathunga
+- Abas Suja
+- Rasul
+- Kulaliny
+- Malinda
+- Rasul
+- Kulaliny
