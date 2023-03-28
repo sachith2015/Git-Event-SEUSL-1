@@ -1,6 +1,9 @@
 - Ahamed Safnaj
 - Randeepan
 - Ashen
+- Rasul
+- Kulaliny
+- Thilaksana
 - Umair
 - Dhanushka
 - Chathunga
