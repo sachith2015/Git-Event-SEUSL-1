@@ -1,6 +1,8 @@
 - Ahamed Safnaj
 - Randeepan
 - Ashen
+- Ashen Again
+- Rashee Wijesinghe
 - Madeesha
 - Rasul
 - Kulaliny
