@@ -6,6 +6,7 @@
 - Madeesha
 - Rasul
 - Kulaliny
+- Randeepa
 - Thilaksana
 - Umair
 - Dhanushka
